@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **barteklegierski220@gmail.com**
 
-- ⚡ Fun fact **I love horror movies and coffee**
+- ⚡ About me **I love horror movies and coffee**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
